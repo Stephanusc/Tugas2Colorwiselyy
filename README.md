@@ -1,1 +1,1 @@
-# Tugas2Colorwiselyy
+# Tugas 2, 3 Color wisely dan multivariate
